@@ -1,0 +1,1 @@
+# Fryc_Czuba_kolko_krzyzyk
